@@ -1,0 +1,2 @@
+# kamal.co.id
+domain
